@@ -5,7 +5,7 @@
 ⚠温馨提示：网址前一定要添加“ https:// ”，能更顺畅访问。
 最新启用地址：（请保存2-3个，防止丢失，保存的越多越好）
 ------
-:heart: :point_right: 【最新地址1】 ：https://最新.yaodizhi.buzz/巨人
+:heart: :point_right: 【最新地址1】 ：https://最新.tiandizhi.buzz/巨人
 ------
 :heart: :point_right: 【永久地址】 ：【忘记地址.com】https://wangjidizhi.com
 ------
